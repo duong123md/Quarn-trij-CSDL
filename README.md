@@ -1,1 +1,1 @@
-# Quarn-trij-CSDL
+# Quan-tri-CSDL
